@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @alekkkkonrad
+- 👀 I’m interested in many things like program, games and find a reason to keep going.
+- 🌱 I’m currently learning about what i like
+- 💞️ I’m looking to collaborate on anything i like and find interesting
+- 📫 How to reach me just send me a email: alexandrekonradmain@gmail.com
