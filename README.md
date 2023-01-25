@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alekkkkonrad
-- 👀 I’m interested in many things like JS, React and Python.
+- 👀 I’m interested in many things like JS, React and Node.
 - 🌱 I’m currently learning about what i like.
 - 💞️ I’m looking to collaborate on anything i like and find interesting
-- 📫 How to reach me? just send me an email: alexandrekonradmain@gmail.com
+- 📫 How to reach me? just send me an email: alexandrekonradifrs@gmail.com
